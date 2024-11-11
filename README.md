@@ -2,6 +2,7 @@
 ＭᗴＴᗩＰᖇＯ ＤᗴＶᗴＬᗝＰᏆＮǤ
 
 𝐌𝐞𝐭𝐚𝐩𝐫𝐨 𝐃𝐞𝐯𝐞𝐥𝐨𝐩𝐢𝐧𝐠 terms of service
+
 Welcome to ＭᗴＴᗩＰᖇＯ ＤᗴＶᗴＬᗝＰᏆＮǤ! By accessing or using the Jodcord app, you agree to comply with and be bound by the following Terms of Service. 
 Please read these terms carefully before using the platform. If you do not agree to these terms, you may not use Metapro Developing.
 
